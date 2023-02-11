@@ -1,0 +1,1 @@
+# EFI-Asus-TUF-Gaming-B660-Plus-WiFi-D4-I5-12400-RX6600
